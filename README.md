@@ -1,1 +1,0 @@
-# cyrusxcolah.github.io
